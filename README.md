@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vikashdevarajan
+- 👀 I’m interested in data related job roles 
+- 🌱 I’m currently learning Msc decision and computing science(Integrated) in Coimbatore instiute of technology 
+- 💞️ I’m  actively looking for internship
+- 📫 contact Details: email: vikashvd2004@gmail.com  phone:6385286710
